@@ -58,4 +58,22 @@
 ![](https://github.com/SheikhEbadaBinAshraf/Finance-Management.AI-/blob/main/Screenshot%204.png?raw=true)  
   
 
-![](https://github.com/SheikhEbadaBinAshraf/Finance-Management.AI-/blob/main/Screenshot%205.png?raw=true)  
+![](https://github.com/SheikhEbadaBinAshraf/Finance-Management.AI-/blob/main/Screenshot%205.png?raw=true)
+
+![](https://github.com/SheikhEbadaBinAshraf/Finance-Management.AI-/blob/main/Screenshot%206.png?raw=true)
+
+![](https://github.com/SheikhEbadaBinAshraf/Finance-Management.AI-/blob/main/Screenshot%207.png?raw=true)
+
+![](https://github.com/SheikhEbadaBinAshraf/Finance-Management.AI-/blob/main/Screenshot%208.png?raw=true)  
+
+![](https://github.com/SheikhEbadaBinAshraf/Finance-Management.AI-/blob/main/Screenshot%209.png?raw=true)  
+
+![](https://github.com/SheikhEbadaBinAshraf/Finance-Management.AI-/blob/main/Screenshot%2010.png?raw=true)  
+
+![](https://github.com/SheikhEbadaBinAshraf/Finance-Management.AI-/blob/main/Screenshot%2011.png?raw=true)  
+
+![](https://github.com/SheikhEbadaBinAshraf/Finance-Management.AI-/blob/main/Screenshot%2012.png?raw=true)  
+
+![](https://github.com/SheikhEbadaBinAshraf/Finance-Management.AI-/blob/main/Screenshot%2013.png?raw=true)  
+
+![](https://github.com/SheikhEbadaBinAshraf/Finance-Management.AI-/blob/main/Screenshot%2014.png?raw=true)  
